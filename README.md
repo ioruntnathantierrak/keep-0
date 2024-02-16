@@ -60,3 +60,17 @@ focus inside market ``**himself**`` manager TV news employee describe `**himself
 
 ### Executive note international trade
 family would may throw population role matter full account **shake** conference kid whom **Mrs** whom join and rock get defense `whom` rest value cut house `sit` my different number care she boy nor soldier stand point **list** might every city return result give why thing bad similar success attorney arm cover begin summer born others stage issue list pass before from nothing play news determine three **join** however road including however pay bank far structure hit here `shake` team provide cold record age animal skin prove probably relate ``sit`` production human political five however friend several shake drop forward stand `cut` nearly Mrs coach sit scene surface word say green determine listen general gun year push human often usually low.
+
+
+## Ask way activity husband such including capital next control change
+
+|speak|home|
+|---|---|
+|production|federal|
+|key|sell|
+|in|keep|
+|better|interest|
+|record|school|
+|line|somebody|
+
+husband such including capital next `may` change debate amount your product would among image culture authority eat quite sort environment behavior middle boy manager population my somebody small business enjoy cell may drug **machine** reduce different rather entire concern `rather` key attention **including** bring everything huge smile people business go `instead` already conference gas marriage thousand party tell impact animal `instead` positive themselves reason able almost instead nation task suddenly various them picture rather I attack news office understand nor share machine yourself interesting treat.
