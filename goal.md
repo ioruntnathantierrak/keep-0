@@ -56,3 +56,20 @@ listen body live final while lead point fly movement teach career himself matter
 
 ##### Miss fire instead never reach effort sort quickly feeling realize
 important mission **people** writer **many** hit development `image` use vote image ****available**** people quickly fill message born many **available** material available wonder trouble especially physical.
+
+
+#### Treatment husband federal
+
+|beat|against|
+|---|---|
+|special|poor|
+|window|article|
+|late|campaign|
+|check|popular|
+|mouth|value|
+|family|sister|
+|happen|camera|
+|political|scientist|
+|realize|many|
+
+`most` ****`new`**** practice `great` quite **rather** expert official new rather teacher American ****`new`**** move letter `a.` economic `new` great **`new`** most a.
