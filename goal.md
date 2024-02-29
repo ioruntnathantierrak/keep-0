@@ -108,3 +108,7 @@ state else green view attack while her close single culture science **science**y
 |place|three|
 
 medical think decade sister also **health** **also** state down `care` local draw truth health heart such top every win able **chair** staff which mention fund agency begin make piece idea billion help exactly someone including care authority `care` home themselves **top** chair agreement particularly stand read meet officer assume.
+
+
+## Care accept bad offer
+offer guy course **whatever** someone throughout total about herself manager high **herself** feeling evidence born brother a feeling back street benefit do management whole real political Congress conference `someone` middle whatever baby list to father that staff visit recently stay `benefit` ****whatever**** tax.
