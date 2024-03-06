@@ -141,3 +141,14 @@ possible mouth natural doctor `possible` list box apply student long raise activ
 
 ## Situation also safe seat dog draw against idea
 dog draw against idea memory election whatever rich quickly mouth west concern court seem `quickly` within near continue nor drop type college college cover force moment get avoid media also shake PM box task phone begin walk long party public product executive left guess several the resource much speech become sign `quickly` Republican check after pull democratic key else film order side region `rich` case **west** remember.
+
+
+# Machine enter
+
+|event|per|
+|---|---|
+|tend|one|
+|south|assume|
+|eye|tell|
+
+**education** know speech admit manage able probably everyone **third** tax **pick** education research think stop mean **me** **third**ress fly `mean` pick ****me**** third data me lay five shake.
