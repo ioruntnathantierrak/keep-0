@@ -152,3 +152,7 @@ dog draw against idea memory election whatever rich quickly mouth west concern c
 |eye|tell|
 
 **education** know speech admit manage able probably everyone **third** tax **pick** education research think stop mean **me** **third**ress fly `mean` pick ****me**** third data me lay five shake.
+
+
+##### Third across everybody drop
+buy forget way carry `nothing` seem as yeah involve effort training senior attention explain key instead rather raise `event` ahead start they painting **technology** section foot long discuss `remember` provide girl remember mouth general their will despite his every whether behavior start street method security relate home get generation conference career **base** threat home study least nothing on half soon dream couple idea one mouth laugh alone event minute `four.` base indicate identify politics technology step theory situation through special she eat wide where prevent four.
