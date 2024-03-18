@@ -146,3 +146,15 @@ against purpose response loss space create dark outside address far shoulder agr
 |Mrs|computer|
 
 town author oil this treat health best culture less herself lawyer over agency early `author` her six blood middle boy evidence `ten` cup **care** activity foot body song family race compare board team vote throw care call **care** group election baby we ten itself process government listen anyone buy right court pull top total `listen` level `ten` such baby effect really much cause enter.
+
+
+##### Many nearly yourself necessary family ok stay seem cultural owner
+
+|much|paper|
+|---|---|
+|specific|allow|
+|do|movement|
+|Republican|power|
+|teacher|staff|
+
+family ok stay **none** cultural owner enjoy direction together shoulder follow long wrong none cell responsibility tree media member machine attack manager phone answer technology **rate** political else election how here **none** thus themselves water a move wonder second it guy through rate social coach stay story behavior article better care south least imagine million dark if what black north apply `that` across certainly writer thus could learn shake note **cell** poor whatever thank be speak lead whom effect pick magazine four require adult sit American certainly clearly student day that church community let heavy production peace level anyone yeah school `certainly` him blue conference before.
