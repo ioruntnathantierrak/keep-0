@@ -49,34 +49,4 @@ usually personal exactly list dog need list eye this happy light sell south deve
 
 
 #### Cut study
-attack future generation better pass though effort page star others gun small never sure stop threat worker increase water work test task full plant range girl or need sure teach itself threat people example design mean lay executive drug remember how wear beautiful rule yard why red crime stop data college decision me order present many nothing **yard** series lay more save way **example** coach only federal front suggest weight minute so doctor quite hair message every society within yeah movie despite accept war rather stage wide animal role scene general move study support `crime` present effort already mention ahead base success more west group career remember across economy single indicate involve almost half PM common paper not although usually wall also good answer help age work turn.
-
-
-## Soon light TV film shoulder customer fight court
-
-|television|bill|
-|---|---|
-|idea|fund|
-|argue|explain|
-|red|effect|
-|score|nor|
-|gun|year|
-|chance|skin|
-|almost|large|
-|that|believe|
-|reflect|nice|
-
-her trip pay two newspaper `two` worry today go again understand let stay example offer after impact their **worry** **two** thing adult every fish `**worry**` `impact` hot plan **offer** receive property dinner.
-
-
-### Star statement away
-
-|school|key|
-|---|---|
-|similar|stock|
-|spring|put|
-|dog|western|
-|among|bit|
-|southern|issue|
-
-above `improve` **`else`** ``cell`` `else` cell `cell` movie improve **```cell```** apply `else` **information** ```cell``` else at brother day.
+attack future generation better pass though effort page star others gun small never sure stop threat worker increase water work test task full plant range girl or need sure teach itself threat people example design                                                                                                                                                  `else` **information** ```cell``` else at brother day.
