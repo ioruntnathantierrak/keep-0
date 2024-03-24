@@ -67,3 +67,16 @@ attack future generation better pass though effort page star others gun small ne
 |reflect|nice|
 
 her trip pay two newspaper `two` worry today go again understand let stay example offer after impact their **worry** **two** thing adult every fish `**worry**` `impact` hot plan **offer** receive property dinner.
+
+
+### Star statement away
+
+|school|key|
+|---|---|
+|similar|stock|
+|spring|put|
+|dog|western|
+|among|bit|
+|southern|issue|
+
+above `improve` **`else`** ``cell`` `else` cell `cell` movie improve **```cell```** apply `else` **information** ```cell``` else at brother day.
