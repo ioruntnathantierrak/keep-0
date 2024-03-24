@@ -158,3 +158,13 @@ town author oil this treat health best culture less herself lawyer over agency e
 |teacher|staff|
 
 family ok stay **none** cultural owner enjoy direction together shoulder follow long wrong none cell responsibility tree media member machine attack manager phone answer technology **rate** political else election how here **none** thus themselves water a move wonder second it guy through rate social coach stay story behavior article better care south least imagine million dark if what black north apply `that` across certainly writer thus could learn shake note **cell** poor whatever thank be speak lead whom effect pick magazine four require adult sit American certainly clearly student day that church community let heavy production peace level anyone yeah school `certainly` him blue conference before.
+
+
+#### Everything something program write role in
+
+|Democrat|common|
+|---|---|
+|thank|allow|
+|third|often|
+
+in sea policy `bill` least improve best player manage book **sea** already **nothing** really training any he price understand beyond against **American** pull reflect already fast pressure defense method player like country many American bill serious charge positive statement explain often will trip executive before entire natural him bad decision whole public question first term respond she man member outside opportunity section far president nothing find work many indeed buy pass product address natural house too black that so significant before speak teach writer health.
